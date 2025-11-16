@@ -19,4 +19,5 @@ Python-разработчик, увлеченный созданием поле�
 
 ### 📞 Связь
 
-[Telegram](https://t.me/Jcidjdhdhd) • [VK](https://vk.com/id660323509)
+[Telegram](https://t.me/Jcidjdhdhd)
+[VK](https://vk.com/id660323509)
